@@ -1,1 +1,0 @@
-mini curso is good
